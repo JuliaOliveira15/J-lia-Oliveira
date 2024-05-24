@@ -10,4 +10,7 @@ Sou Júlia Oliveira
 
 - Sou dedicada
 
-- Sou inteligente 
+- Sou inteligente
+
+- Sou percusionista
+  
